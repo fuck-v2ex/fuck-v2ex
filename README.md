@@ -48,7 +48,7 @@ V2EX粪坑投放反社会的法轮功广告。
 ![刘昕Livid](https://fuck-v2ex.github.io/fuck-v2ex/img/livid_1.png)
 
 ### 刘昕Livid图2
-<img src="https://fuck-v2ex.github.io/fuck-v2ex/img/livid_2.png" alt="刘昕Livid，左侧" width="250" height="300">
+<img src="https://fuck-v2ex.github.io/fuck-v2ex/img/livid_2.png" alt="刘昕Livid，左侧" width="230" height="300">
 
 ## 简介
 刘昕Livid，男，祖籍中国昆明，自幼愚蠢，高中辍学，初中学历，愤世嫉俗，公开发表过极多反华反智幼稚言论，骨子里极度反华反社会，彻底的灯塔国的反贼/殖人/香蕉人，但始终由于各种原因没能力拿到美国绿卡及融入美利坚当地白人圈层，也深知回国大概率会立即面临牢底坐穿的结局，2015备案掉了以后一直不敢回中国。
